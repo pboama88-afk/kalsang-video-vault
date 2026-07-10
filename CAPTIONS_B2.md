@@ -1,0 +1,496 @@
+# BATCH 2 — 20 Video Captions (v3 viral format)
+
+## 1. Liver: Strain vs Support (liver_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Your liver forgives you every six weeks. Until it can't. 🫀
+
+🚨 STRAIN: alcohol 🥃 · hidden sugar 🍬 · 2AM meals 🥡
+🛡️ SUPPORT: broccoli sprouts 🌱 · garlic 🧄 · grapefruit 🍊
+
+🛠️ The Strategy: your liver regenerates every 6 weeks — give it six clean ones and watch what happens.
+
+🔖 Save this before Friday night 🥃 (and tag someone whose liver deserves a vacation)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#LiverHealth #LiverDetox #NaturalRemedies #HolisticHealth
+
+---
+
+## 2. Heart: Strain vs Support (heart_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+100,000 beats a day. Zero complaints filed. ❤️
+
+🚨 STRAIN: salt 🧂 · vaping 💨 · sitting all day 🪑
+🛡️ SUPPORT: salmon 🐟 · garlic 🧄 · a 20-minute walk 👟
+
+🛠️ The Strategy: your habits should work FOR the only engine you get.
+
+🔖 Save this for your next grocery run 🛒 (and tag someone whose cardio is walking to the fridge)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#HeartHealth #CardiovascularHealth #HealthyHeart #Omega3
+
+---
+
+## 3. Brain: Strain vs Support (brain_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Doomscrolling does to your brain what salt does to your kidneys. 🧠
+
+🚨 STRAIN: doomscrolling 📱 · sugar spikes 🍬 · all-nighters ⏰
+🛡️ SUPPORT: blueberries 🫐 · walnuts 🌰 · deep sleep 🌙
+
+🛠️ The Strategy: the fog isn't age. It's inputs.
+
+🔖 Save this for your next brain-fog morning 🌫️ (and tag someone who's been 'about to sleep' for 3 hours)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#BrainFog #BrainHealth #CognitiveHealth #Neuroscience
+
+---
+
+## 4. Gut: Strain vs Support (gut_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Your gut bacteria outnumber your own cells. Feed the right army. 🦠
+
+🚨 STRAIN: ultra-processed food 🍯 · needless antibiotics 💊
+🛡️ SUPPORT: sauerkraut 🫙 · miso 🍜 · fiber 🌾
+
+🛠️ The Strategy: every meal is a vote for one side.
+
+🔖 Save this for meal prep 🍱 (and tag someone whose gut growls in meetings)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#GutHealth #Microbiome #Probiotics #ImmuneSupport
+
+---
+
+## 5. Skin: Strain vs Support (skin_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+The mirror shows what the kitchen did. 🪞
+
+🚨 STRAIN: sugar 🍬 · dehydration 🧊 · sleep debt ⏰
+🛡️ SUPPORT: omega-3 🐟 · water 💧 · zinc foods 🎃
+
+🛠️ The Strategy: feed the skin for six weeks. Notice what shifts.
+
+🔖 Save this before you buy another serum 🧴 (and tag someone with a 12-step routine and a candy drawer)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#SkinHealth #ClearSkin #GlowUp #SkinFood
+
+---
+
+## 6. Lungs: Strain vs Support (lung_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Your lungs are self-cleaning. If you stop interrupting. 🫁
+
+🚨 STRAIN: vaping 💨 · dust 🌫️ · shallow breathing 😮‍💨
+🛡️ SUPPORT: ginger 🫚 · thyme 🌿 · slow nasal breaths 👃
+
+🛠️ The Strategy: the cilia sweep all night. Give them something to work with.
+
+🔖 Save this and take one slow breath now 🌬️ (and tag someone who needs to hear it)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#LungHealth #BreathWork #RespiratoryHealth #NaturalHealing
+
+---
+
+## 7. The Full Kidney Protocol (kidney_protocol_2.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+You asked for the full kidney protocol. Here it is. 🫘
+
+🚨 STRAIN: energy drinks ⚡ · painkiller habit 💊
+🛡️ SUPPORT: water timing 💧⏰ · lemon citrate 🍋 · cranberry 🍒
+
+🛠️ The Strategy: your kidneys filter 180 liters a day. Make the input worth filtering.
+
+🔖 Save this next to your water bottle 🧴 (and tag the energy drink friend. They know.)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#KidneyHealth #RenalDiet #Hydration #NaturalRemedies
+
+---
+
+## 8. Eyes: Strain vs Support (eye_strain_support.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Your eyes work a 12-hour screen shift daily. For free. 👁
+
+🚨 STRAIN: blue light at 1AM 📱 · eye rubbing 👋
+🛡️ SUPPORT: lutein greens 🥬 · goji 🍒 · the 20-20-20 rule ⏱️
+
+🛠️ The Strategy: every 20 minutes, 20 seconds, 20 feet away. Your retina keeps the receipts.
+
+🔖 Save this for your screen-tired eyes 📱 (and tag someone whose screen time report is a crime scene)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#EyeHealth #BlueLight #VisionCare #ScreenTime
+
+---
+
+## 9. Liver: 30 Days Without Alcohol (liver_30_days.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Day 3 is ugly. Day 30 is worth it. 🫀
+
+📆 Week 1: better sleep arrives first 😴
+📆 Week 2: the 3AM wake-ups fade 🌙
+📆 Week 3: fat processing resets ⚖️
+📆 Week 4: enzymes normalize. The engine hums. ✨
+
+🛠️ The Strategy: support the repair with water 💧 and leafy greens 🥬.
+
+🔖 Save this for day 1 📌 (and tag your dry-month partner)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#SoberCurious #LiverHealth #30DayChallenge #AlcoholFree
+
+---
+
+## 10. Brain: 30 Days Off Sugar (brain_30_days_sugar.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+The first week feels like a breakup. Then the fog lifts. 🧠
+
+📆 Days 1-5: cravings scream 🍬❌
+📆 Week 2: steady energy, no 2PM crash ⚡
+📆 Week 3: sharper focus, calmer mood 🎯
+📆 Week 4: taste buds reset — fruit tastes like dessert 🍓
+
+🛠️ The Strategy: protein breakfast 🥚 + daily walks 👟 carry you through week one.
+
+🔖 Save this for Monday 📌 (and tag your sugar-quitting buddy)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#SugarFree #BrainFog #30DayChallenge #MetabolicHealth
+
+---
+
+## 11. Gut: 30 Days of Fermented Foods (gut_30_days_fermented.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+One jar of sauerkraut. Thirty days. Watch. 🫙
+
+📆 Week 1: the new tenants move in 🦠
+📆 Week 2: less bloating after meals 🌬️
+📆 Week 3: regularity you could set a watch to ⏰
+📆 Week 4: microbial diversity up — immunity's foundation 🛡️
+
+🛠️ The Strategy: one forkful of sauerkraut 🫙, kefir 🥛 or miso 🍜 with one meal a day. That's it.
+
+🔖 Save this for your next food shop 🛒 (and tag someone scared of the fermented aisle)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#GutHealth #FermentedFoods #Probiotics #30DayChallenge
+
+---
+
+## 12. Face: 30 Days of 3 Liters (face_30_days_water.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Cheaper than any serum you own. 💧
+
+📆 Week 1: headaches quietly leave 🤔
+📆 Week 2: skin plumps, fine lines soften ✨
+📆 Week 3: dark circles lighten 👁
+📆 Week 4: the glow people ask about 🌟
+
+🛠️ The Strategy: first glass before coffee ☀️, a pinch of salt + lemon for electrolytes 🧂🍋.
+
+🔖 Save this and fill a bottle now 🧴 (and tag someone who thinks coffee counts as water)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#HydrationChallenge #GlowUp #SkinCare #WaterChallenge
+
+---
+
+## 13. Why You Wake at 3AM (three_am_wakeup.mp4)
+
+**FB/IG first comment:** Comment SLEEP and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Waking at 3AM isn't random. Your body runs on a schedule. 🕐
+
+🫀 1AM-3AM: the liver's deep-clean shift
+🧠 If it's overloaded — late meals, alcohol, sugar — it wakes the whole building
+
+🛠️ The Strategy: last meal by 8PM 🍽️ · magnesium foods at dinner 🎃 · warm water before bed 🍵
+
+🔖 Save this for tonight 🛏️ (and tag the 3AM ceiling-starer in your life)
+
+💬 Comment SLEEP and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#SleepTips #3AMClub #LiverHealth #DeepSleep
+
+---
+
+## 14. Cold Hands & Your Thyroid (cold_hands_thyroid.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Always-cold hands can be your thyroid whispering. 🧊
+
+🦋 The thyroid sets your body's thermostat
+🪄 When it runs slow, the extremities lose heat first
+
+🛠️ The Strategy: selenium 🌰 (2 brazil nuts a day) · iodine 🍜 (seaweed) · warm protein meals 🍲. Persistent symptoms deserve a proper thyroid panel — ask your doctor.
+
+🔖 Save this for the always-freezing friend 🧤 (you know exactly who to tag)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#ThyroidHealth #ColdHands #HormoneHealth #Metabolism
+
+---
+
+## 15. The 2PM Crash Explained (two_pm_crash.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+The afternoon crash isn't a character flaw. It's a rollercoaster. 🎢
+
+📈 Sugar rush at lunch → insulin spike → 📉 the 2PM plunge
+
+🛠️ The Strategy: protein first 🥚 · fiber 🌾 · a splash of vinegar before meals 🥣. Flatten the track, keep the energy.
+
+🔖 Save this for tomorrow's lunch 🍱 (and tag your 2PM zombie coworker 🧟)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#EnergyCrash #BloodSugar #InsulinResistance #ProductivityTips
+
+---
+
+## 16. Bloated After a Salad? (bloated_after_salad.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Bloated after a SALAD? Your gut army is outnumbered. 🥗
+
+🦠 Raw fiber needs bacteria to break it down
+📉 A depleted microbiome gets overwhelmed — hence the balloon
+
+🛠️ The Strategy: start small 🌱 · cook your greens 🍳 · add fermented foods 🫙 to rebuild the workforce first.
+
+🔖 Save this if salads betray you 🥗 (and tag someone who swears they're 'healthy but bloated')
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#Bloating #GutHealth #IBS #DigestiveHealth
+
+---
+
+## 17. Drinks Ranked by Your Kidneys (kidney_drink_tierlist.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Your kidneys ranked your favorite drinks. Prepare to be offended. 🫘
+
+🥇 S: water 💧
+🥈 A: green tea 🍵
+🥉 B: coconut water 🥥
+C: kombucha 🧉
+D: fresh juice 🍊
+❌ F: energy drinks ⚡
+
+🛠️ The Strategy: the filters never sleep. Send them something easy.
+
+🔖 Defend your favorite in the comments ⚔️ (and tag the F-tier friend)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#KidneyHealth #TierList #Hydration #HealthyDrinks
+
+---
+
+## 18. 5 'Health Foods' Unmasked (fake_health_foods.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+Five 'health foods' wearing a costume. 🎭
+
+🥣 Granola → candy in a bowl (up to 20g sugar per serving)
+🍫 Protein bars → many are candy bars with a gym membership
+🥤 Diet soda → trains the sweet tooth it claims to spare
+🍨 Flavored yogurt → dessert with a health halo
+🥔 Veggie chips → potato chips in a green costume
+
+🛠️ The Strategy: read the back label, not the front promise.
+
+🔖 Save this for your next shop 🛒 (and tag the granola loyalist gently)
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#HealthFoods #NutritionMyths #FoodLabels #HealthyEating
+
+---
+
+## 19. Night Shift: What Repairs While You Sleep (night_shift.mp4)
+
+**FB/IG first comment:** Comment SLEEP and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+While you sleep, a crew clocks in. 🌗
+
+🫀 Liver: filtering the day's ledger
+🧠 Brain: flushing waste through the glymphatic system
+💪 Muscles: stitching repairs with growth hormone
+
+🛠️ The Strategy: sleep by 10PM 🌙 · dark room 🔦❌ · no late meals 🍽️❌. Don't make the crew work around you.
+
+🔖 Save this for tonight 🛏️ (and tag someone who 'functions fine' on 5 hours)
+
+💬 Comment SLEEP and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#SleepHealth #DeepSleep #Recovery #SleepTips
+
+---
+
+## 20. Your Immune Army's Daily Patrol (immune_patrol.mp4)
+
+**FB/IG first comment:** Comment REMEDY and I'll send you the full protocol.
+**TikTok/YT first comment:** 🔗 The full protocol is linked in my profile.
+
+You have an army. You've been starving it. 🛡️
+
+⚔️ White blood cells patrol 24/7 — they just need supplies
+📦 Restock the armory: garlic 🧄 · mushrooms 🍄 · citrus 🍊 · ginger 🫚
+
+🛠️ The Strategy: immunity isn't built in sick week. It's built at dinner, every night.
+
+🔖 Save this for flu season 🤧 (and tag someone who's always catching 'the thing going around')
+
+💬 Comment REMEDY and I'll send you the full protocol.
+
+ℹ️ Educational purposes only — not medical advice.
+
+康
+
+#ImmuneSupport #ImmuneSystem #NaturalRemedies #WinterWellness
+
+---
